@@ -1,1 +1,24 @@
 # Assignment-No-1
+https://www.tinkercad.com/things/f13xe8iRWNp/editel?sharecode=De2I3bLPPWXp3J9SDxO60ktA7BA2YMc1bMMYqAbO2CA
+https://www.tinkercad.com/things/ihBOLHM4YPe/editel?sharecode=DFCGYM_3xJKghJbSMMkQLi3ZzgkATv6UYZtCcm5WN-g
+https://www.tinkercad.com/things/i09nP1GUzJQ/editel?sharecode=51IfBml2IBHecpZIUEEB2JxTCNbdXmk0nHLnq14c0H4
+https://www.tinkercad.com/things/bnRh2ZidzHW/editel?sharecode=YrDNvUsHKK7Ou-5eDih1i-l1wSyIRqw3jogUcDjS4r8
+https://www.tinkercad.com/things/4K5Ixt4Q1tt/editel?sharecode=DDRJqSzBMuq0NKeqnMf_yKapaCdMTTTLJlaWldIEO0M
+https://www.tinkercad.com/things/bw10bkyu6UE/editel?sharecode=4swl-kPMu1dKsIBBdqRK33IvHxLd2mSg4qpiE6pxYDU
+https://www.tinkercad.com/things/dVQ1lfe8gPA/editel?sharecode=cocBv0tDMCd2iQsM4WV0fZeC9AJnMcgqPmNCKPP3Ncw
+https://www.tinkercad.com/things/9g3VwBaVufq/editel?sharecode=oJbNFYa8xqUVD-lD42lgJeK9gyKFR5yw3fwJbD3hiAQ
+https://www.tinkercad.com/things/l2eoE2ge4he/editel?sharecode=A9g9i7nPF-yuZXlDNC6E8Xib8f73mazonjkv0E_bGYY
+https://www.tinkercad.com/things/cvVBFBv6a0L/editel?sharecode=3szLdVLDJmJyX2UegYdHEXfC1GQFH4ezG_EQWc496Rk
+https://www.tinkercad.com/things/h4JJRhIXSnP/editel?sharecode=KQSJyeeYbBegGPdxir3Rg9mGPSUBaXjwxtFt0bwZOek
+https://www.tinkercad.com/things/0h0kTHUWC5g/editel?sharecode=K0TS0Rsn_dZS1vmH2vr5BII_nDmVCmGy0o5WKFx9voU
+https://www.tinkercad.com/things/9frxIOYpE7O/editel?sharecode=oN6q-ODeTQY3rDgrLBBsqYJJXGYiPrRJKNfw3gZeJsw
+https://www.tinkercad.com/things/4T88ULznK7t/editel?sharecode=ptxKdeYlIBnMoQc6QLEgWZwXty5f9sSJQEAfC8yHAZM
+https://www.tinkercad.com/things/8nvEN2AAp7z/editel?sharecode=RGnHzLv6JReefEzyGUfuxdSvxmM5iiab3_ZPHMilqaM
+https://www.tinkercad.com/things/5O84c34MYhz/editel?sharecode=TJS3-h3G9IPWelgQfzpGmlScWzKlwzWMNfsaOcajwqk
+https://www.tinkercad.com/things/75vOTCsaHyW/editel?sharecode=ksCI-4BTzBWpV6oEWmaSSHwQnVHGteiQ34SII5O6TWo
+https://www.tinkercad.com/things/a3HE36B8qvt/editel?sharecode=Jadkz8WxrLjZEjAI4VcyZDcRqoB7zfpri4XcfTGz_G4
+https://www.tinkercad.com/things/0jO2CG4vznz/editel?sharecode=LXRUfNrWwRES4TaOykWuZFBEuRj8m5vK5v9zaD6cZaE
+https://www.tinkercad.com/things/3aZOHMAfedu/editel?sharecode=Ig-8NgjM0HOk5GHCI-q6j1jeEd2yApvPUDWWb7pfA7k
+https://www.tinkercad.com/things/jB81lgzuCc4/editel?sharecode=wPVGiI43XxlytfYYqRso3zZ7yhpG_qPQNT4gmjyrjcw
+https://www.tinkercad.com/things/kHSdSe1KYrR/editel?sharecode=sBHjAb2gM4FSTFUqSpA6aLYS6lh0Vp5CK5HOoAtwmUo
+https://www.tinkercad.com/things/7t6zB178Xm3/editel?sharecode=fGSShjHxCQqVJpJpPAJqDq_lKslU0p_4N8MbawrRKHU
